@@ -1,5 +1,5 @@
 # 💫 About Me:
-Dual Student @Continental | Bachelor of Science - Software Technology
+Dual Student | Bachelor of Science - Software Technology
 
 
 ## 🌐 Socials:
